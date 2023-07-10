@@ -32,7 +32,7 @@ public class Role {
     public Set<User> getUsers() {
         return users;
     }
-
+jjjjjjjj
     public void setUsers(Set<User> users) {
         this.users = users;
     }

@@ -20,20 +20,10 @@ c b dbw dnb cbd bd b sajb ddsmn dwmnmn
 fjyfyuf
 ggfgyhfgjyf
 bgadvbasv. hdavchasvbhas
-http://52.195.0.15:8080/ vc vxz. hbxvcbhvcv cb cdhscvbhsbc
-B cbs cbas baxs cASB
-x xzb zb bx xz xzv
-bnc vbasdcbasdcsacasnc
-cvasbcvsabvb
-bcvxbcbdcbccxbb
- bdsacb sdb casbd 
-sabaS B
-csv bav hbchhbckv
-df
-f
-f
-f
-gnjkfvhihfifg
-gwrgrgrwh
-grgrg
+http://52.195.0.15:8080/ vc vxz. hbxvcbhvcv cb cdhscvbhsbc111111
+2222
+33333
+2233
+
+
 
